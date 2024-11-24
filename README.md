@@ -21,11 +21,13 @@ Run Time: 96 minutes
 *You Can Live Forever* is a heartfelt queer drama that tells the story of Jaime, a teenager who finds herself in a small Jehovah’s Witness community. When she falls in love with Marike, the daughter of a devout Witness family, their connection is both tender and challenging. The movie explores themes of love, faith, and identity, weaving a delicate narrative of self-discovery.
 
 **Key Themes**
+
 1. Forbidden Love: The romantic tension between Jaime and Marike feels raw and genuine.
 2. Faith vs. Identity: Both characters struggle with reconciling their personal feelings with their religious teachings.
 3. Community and Isolation: The movie portrays the suffocating nature of tight-knit religious communities.
 
 **Highlights**
+
 1. Authentic Representation: The movie beautifully portrays a same-sex relationship without sensationalizing it.
 2. Complex Themes: The clash between personal desires and religious expectations is handled with sensitivity.
 3. Impressive Performances: Both lead actresses deliver nuanced and compelling performances.
