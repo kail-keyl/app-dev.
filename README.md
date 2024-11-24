@@ -7,9 +7,13 @@
 **Details**
 
 Details
+
 Genre: Drama/Romance
+
 Release Year: 2022
+
 Directed by: Sarah Watts & Mark Slutsky
+
 Run Time: 96 minutes
 
 **Plot Summary**
