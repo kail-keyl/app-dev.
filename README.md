@@ -6,8 +6,6 @@
 
 **Details**
 
-Details
-
 Genre: Drama/Romance
 
 Release Year: 2022
