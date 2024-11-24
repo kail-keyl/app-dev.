@@ -37,18 +37,33 @@ the confrontation between Jaime and Marika. It’s a pivotal moment that highlig
 *Jaime and Marike's Confrontation:*
 
 Marike: I know this doesn't make sense to you.
+
 Jaime: They can't force you to do this.
+
 Marike: Nobody forced me. It was my idea. All that matters is that in the new system, we're both there. You and me.
+
 Jaime: That's why you're getting married?
+
 Marike: If we both live in the truth, we won't be apart.
+
 Jaime: What am I supposed to do? Nobody wants me here.
+
 Marike: It'll be okay. You won't have to leave.
+
 Jaime: Am I supposed to marry Simon then?
+
 Marike: When the paradise comes, we can be there. We'll be together forever. We can do all the things we planned.
+
 Jaime: You don't have to do this. Please. Just come with me.
+
 Marike: I can't.
+
 Jaime: **Why are you doing this for something that is never gonna happen?!**
+
 Marike: **It is gonna happen. So soon. I can't be there without you.**
+
 Jaime: **I don't believe in it.**
+
 Marike: **You don't have to. I can believe enough for the both of us.**
+
 Marike: Please. I love you. Stay.
